@@ -2,4 +2,4 @@
 
 ## A Snowy Afternoon Adventure with Winston and Milo
 ___________________________________________________________________
-Once upon a time there were two GSP pupies stuck in the house while thier owner was doing his computer homework.
+Once upon a time there were two GSP puppies stuck in the house while thier owner was doing his computer homework.
